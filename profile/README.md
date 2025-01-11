@@ -1,4 +1,4 @@
-# Sprunki Scrunkly - Create Epic Music and Beats Online for Free
+# Sprunki Scrunkly - Create Beautiful Music and Beats Online
 
 Welcome to Sprunki Scrunkly – where your musical dreams become reality. With enchanting characters, immersive soundscapes, and intuitive controls, Sprunki Scrunkly unlocks endless possibilities for musical exploration. Start your journey, craft your unique sound, and let your creativity soar in this vibrant musical world. Let Sprunki Scrunkly inspire your artistic spirit today.
 
