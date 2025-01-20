@@ -5,7 +5,7 @@ Welcome to Sprunki Scrunkly – where your musical dreams become reality. With e
 ## Play Sprunki Scrunkly Now
 Wanna dive into a hella cool music journey? Let's kick off this adventure!
 
-- [Sprunki Scrunkly](https://pyramixed.com/sprunki-scrunkly)
+- [Sprunki Scrunkly](https://scrunkly.online)
 
 You may also like:
 - [Sprunki Retake Final Update](https://pyramixed.com/sprunki-retake-final-update)
